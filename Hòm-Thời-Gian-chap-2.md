@@ -23,8 +23,8 @@ Trước mắt phải kiếm việc làm để sinh vật đó không coi khinh 
 Việc làm ư? Trên đảo này đào đâu ra việc làm. Nhìn kĩ vào từng ô cửa, cột đèn, Seulgi vẫn nhận ra con đường xưa cô đang đi. Seulgi để kỉ niệm dẫn lối. Ngày ấy, khi mọi thứ còn hoang sơ, 
 cô đã lướt qua trên con xe thả dốc tự do; giờ cô đi bộ thật chậm, nhìn chằm chằm thật kĩ vào mọi thứ để không lạc lối. Cô đi ngang một bà cô đang quét cổng. Họ dừng lại nhìn nhau.<br>
 \- Dì... Haerin đó phải không ạ?<br>
-\- Seulgi? Seulgi con nhà ông Kang đó hả?<br>
-
+\- Seulgi? Seulgi con nhà ông Kang đó hả?<br><br>
+<p align="center">❦</p><br>
 Wendy đẩy ghế lùi xa máy tính, khoan khoái vươn vai, nhìn đồng hồ. 6 giờ tối. Seulgi? Seulgi vẫn chưa về. Nàng nên đi nấu cơm. Cậu ấy đi cả ngày sao? Trưa không thấy về, còn chưa đưa nàng 
 số điện thoại. Tối qua từ bến phà về xem như họ lăn ra ngủ luôn, chẳng kịp chuyện trò gì. Họ gặp lại nhau với thân phận chẳng mấy tốt đẹp, Wendy thấy thân phận làm sinh vật thí nghiệm của 
 mình còn tệ hơn cả một người hai mươi bảy tuổi đang thất thế nhưng vẫn còn toàn quyền làm chủ cuộc đời. Nàng ư? Nàng thua kém hơn hẳn, không biết Seulgi đánh giá nàng cỡ nào. Lát nữa cậu 
