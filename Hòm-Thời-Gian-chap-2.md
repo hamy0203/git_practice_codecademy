@@ -1,36 +1,43 @@
 # Polaroid
-
-Seulgi vừa mơ về một lần mẹ ôm cô khóc, không nói không rằng. Cô mở mắt nhìn chằm chằm lên trần nhà. Căn phòng sơn màu trắng hồng sáng bừng lên trong nắng, Seulgi đoán đã 9 giờ sáng. 
-Chỗ giường cạnh cô đã nhẹ tênh, người nằm đó đã tỉnh dậy từ lâu, đang ngồi nghiêm chỉnh vào bàn làm việc. Ánh nắng rọi vào đang dần hun nóng không khí trong phòng, tiếng quạt cây quay vì vì, 
-tiếng gõ phím lạch cạch. Seulgi nằm lì trên giường nghĩ về cách gia đình cô dần sa sút, tất cả bắt đầu từ lúc cô bị cưỡng ép lên giường gây mê ngay trước mặt bố mẹ. 
-Vào đất liền, họ chật vật tìm việc, những con người tài năng, lương thiện nằm ngoài quy luật "ở hiền gặp lành". Một lần, bố cô bảo ông và vợ cùng chung một nghề, ông sẽ là người có việc 
-trước vì ông là đàn ông cho mà xem. Ai cũng hiểu ông chỉ muốn khẳng định ông sẽ là người lo hết cho vợ con, mẹ cô chắc chắn hiểu điều ấy, nhưng cách nói của ông khiến bà nổi nóng nói ông 
-quá kiêu ngạo. Khiếu hài hước của cả nhà biến mất như thể họ đã để quên trên đảo. Seulgi nằm lì trên giường cho đến khi không khí trong phòng nóng không chịu nổi, cô đạp tung chăn bật dậy. 
-Wendy ngừng tay xoay ghế lại, vừa dứt câu "chào buổi sáng" đã đưa tay che miệng cười khúc khích. Tóc tai Seulgi bù xù, khuôn mặt búng bính to bè vì vừa ngủ dậy, đôi mắt một mí vẫn chưa 
-mở to ra được, thêm điệu bộ ngơ ngác trông càng khờ.
-
-Wendy để sẵn đồ ăn sáng trên bàn bếp. Không khí nóng hầm hập. Gần 10 giờ sáng. Seulgi ăn trong lặng lẽ. Tiếng dọn đĩa lạch cạch, cửa khép nhẹ một tiếng xoạch khe khẽ.
-
-Seulgi che ô tản bộ. Bà cô Gaeun bảo từng có người bị tai nạn sau khi rời khỏi đảo, không lẽ cô phải thấy may mắn vì gia đình mình dù sao vẫn trọn vẹn? Muốn bắt cọp phải chui vào hang cọp. 
-Seulgi cô đã tự vác xác về hòn đảo này, ăn ngủ trong nhà của Wendy - sinh vật trung tâm của toàn bộ tấn trò hề này. Hẳn bản thân cô cũng là mảnh ghép quan trọng trong thí nghiệp, không lẽ 
-đám người bệnh hoạn đó vẫn theo dõi cô suốt mười lăm năm nay? Bình thản nào. Hãy để camera ẩn đâu đó thấy cô bước đi trên hòn đảo này hết sức bình thản, không nghi ngờ, không đề phòng. 
-Rồi cô sẽ điều tra được sự thật về kẻ đã hãm hại gia đình cô và tìm lối thoát.
-
-Wendy thuộc về phe nào? Cậu ấy mừng quýnh lên khi Seulgi cô nói muốn ở ké nhà cậu ta một thời gian. Hãy tính đến trường hợp xấu nhất: Wendy chính là người cô cần đề phòng nhất.
-
-Trước mắt phải kiếm việc làm để sinh vật đó không coi khinh cô đã.
-
-Việc làm ư? Trên đảo này đào đâu ra việc làm. Nhìn kĩ vào từng ô cửa, cột đèn, Seulgi vẫn nhận ra con đường xưa cô đang đi. Seulgi để kỉ niệm dẫn lối. Ngày ấy, khi mọi thứ còn hoang sơ, 
-cô đã lướt qua trên con xe thả dốc tự do; giờ cô đi bộ thật chậm, nhìn chằm chằm thật kĩ vào mọi thứ để không lạc lối. Cô đi ngang một bà cô đang quét cổng. Họ dừng lại nhìn nhau.
-
-\- Dì... Haerin đó phải không ạ?<br>
-\- Seulgi? Seulgi con nhà ông Kang đó hả?
-<p align="center">* * *</p>
-Wendy đẩy ghế lùi xa máy tính, khoan khoái vươn vai, nhìn đồng hồ. 6 giờ tối. Seulgi? Seulgi vẫn chưa về. Nàng nên đi nấu cơm. Cậu ấy đi cả ngày sao? Trưa không thấy về, còn chưa đưa nàng 
-số điện thoại. Tối qua từ bến phà về xem như họ lăn ra ngủ luôn, chẳng kịp chuyện trò gì. Họ gặp lại nhau với thân phận chẳng mấy tốt đẹp, Wendy thấy thân phận làm sinh vật thí nghiệm của 
-mình còn tệ hơn cả một người hai mươi bảy tuổi đang thất thế nhưng vẫn còn toàn quyền làm chủ cuộc đời. Nàng ư? Nàng thua kém hơn hẳn, không biết Seulgi đánh giá nàng cỡ nào. Lát nữa cậu 
-ấy về, họ nên nói chuyện gì? Cậu ấy có nghĩ nàng cũng chỉ là một thành viên của trung tâm nghiên cứu không? Nàng làm việc cho họ, vừa gập máy tính xuống, nhưng Seulgi, làm ơn, hãy tin nàng 
-không muốn đội trời chung với họ tẹo nào và nàng sẽ cố gắng đáp ứng tất cả những gì Seulgi muốn trong thời gian cậu ấy ở đây.
-
-
-
+<div align='justify'>
+  &ensp;Seulgi vừa mơ về một lần mẹ ôm cô khóc, không nói không rằng. Cô mở mắt nhìn chằm chằm lên trần nhà. Căn phòng sơn màu hồng phớt sáng bừng lên trong nắng, Seulgi đoán đã 9 giờ sáng. Chỗ giường bên cạnh đã nhẹ tênh, người nằm đó đã tỉnh dậy từ lâu, đang ngồi nghiêm chỉnh vào bàn làm việc. Ánh nắng rọi vào chầm chậm hun nóng không khí trong phòng, tiếng quạt cây quay vì vì, tiếng gõ bàn phím cành cạch.<br>
+  &ensp;Seulgi nhắm mắt lại, tâm trí cô trôi về một bữa ăn vô vị trong một ngày vô danh…<br>
+	&ensp;“Bố sẽ tìm được việc trước cho mà xem. Cho dù Bố và Mẹ cùng ứng tuyển một chỗ, người ta cũng sẽ chọn Bố trước vì bố là đàn ông. Thế là Bố sẽ nuôi cả Mẹ và Công Chúa của Bố cho đến khi Mẹ con cũng có việc làm.”<br>
+	&ensp;Bố cô cuộn tay đấm vào ngực ra vẻ tự tin. Seulgi – cô đoán mình khi ấy mười bốn tuổi – chưa biết phản ứng thế nào với phần khiên cưỡng run rẩy không thể giấu trong giọng nói của ông, bất chợt mẹ cô đẩy cửa bếp ruỳnh một cái. Bà mặc nguyên tạp dề nói xối xả vào mặt chồng:<br>
+	&ensp;“A! Là đàn ông! Đàn ông như anh báu quá cơ! Anh thì giỏi giang quá cơ! Anh còn <i>nuôi</i> tôi cơ à??”<br>
+	&ensp;Thế đấy, lại cãi nhau vì những điều không đâu. Từ khi chạy vào đất liền, khiếu hài hước của cả nhà biến mất như thể họ đã để quên trên đảo. Họ ăn chẳng được mấy mà còn phung phí từng hạt cơm dè sẻn vào việc nói chuyện ở mức âm lượng còn to gấp ba lần cái thời ăn uống đủ đầy.<br>
+	&ensp;Seulgi bật dậy khỏi giường trước khi cô hoà làm một với kí ức đờ đẫn nhìn người lớn cãi nhau, nước mắt nhỏ xuống bát cơm ôm sát vào ngực. Cô mím môi lắc đầu như cật lực lắc một quả chuông treo trong não khiến nó rơi xuống đất, ré lên một tiếng choáng váng nát vụn cuối cùng. Trước khi mất hẳn, bố mẹ cô lấm lét nhìn nhau, nhìn con gái rồi chép miệng vờ vĩnh:<br>
+  &ensp;“Kim chi… cay đến mức Công Chúa cay chảy cả nước mắt rồi kìa…”<br>
+  &ensp;Nghe tiếng động, Wendy ngừng tay xoay ghế lại, dứt câu “chào buổi sáng” đưa tay che miệng cười khúc khích. Seulgi ngồi khờ một đống trên giường, hồn xiêu phách lạc, tóc tai bù xù, khuôn mặt búng bính to lên vì vừa ngủ dậy, đôi mắt một mí vẫn chưa thể mở hẳn.<br>
+  &ensp;Bữa sáng nàng vẫn bày trên bàn ăn. Trời nóng quá. Seugli ăn trong lặng lẽ. Cô dọn bát đĩa lạch cạch rồi ra ngoài khép cửa một tiếng xoạch thật khẽ.<br>
+  &ensp;Seulgi che ô tản bộ, tâm trí bắt đầu tản mát theo đôi chân. Bà cô Gaeun kể từng có người bị tai nạn sau khi rời khỏi đảo, không lẽ cô phải thấy may mắn vì gia đình mình dù sao vẫn trọn vẹn? Khốn nạn, muốn bắt cọp phải chui vào hang cọp đây sao? Seulgi cô đã tự vác xác về hòn đảo này, ăn, ngủ trong nhà của Wendy – sinh vật trung tâm của toàn bộ tấn trò hề này. bản thân cô cũng là mảnh ghép quan trọng trong thí nghiệm, không lẽ đám người bệnh hoạn đó vẫn theo dõi cô suốt mười lăm năm nay? Ngay lúc này, có ai đang theo dõi cô không? Bình tĩnh nào. Hãy để camera ẩn đâu đó thấy cô đang bước đi hết sức bình thản, không nghi ngờ, không đề phòng; nhưng lòng cô nung nấu quyết tâm điều tra sự thật về kẻ đã hãm hại gia đình cô, biết đâu họ sẽ tìm ra lối thoát sau đó.<br>
+  &ensp;Wendy thuộc phe nào? Nó đã mừng quýnh lên khi Seulgi muốn ở ké nhà nó một thời gian. Trường hợp xấu nhất: Wendy chính là người cô phải đề phòng nhất?<br>
+  &ensp;Trước mắt phải kiếm việc làm để sinh vật đó không khinh thường cô cái đã.<br>
+  &ensp;Việc làm ư? Trên đảo này đào đâu ra việc làm? Nhìn kĩ vào từng ô cửa, cột đèn, Seulgi vẫn nhận ra con đường xưa cô đi. Cô để kỉ niệm dẫn lối. Ngày ấy, khi mọi thứ còn hoang sơ, cô phá phách và lướt qua hết thảy trên con xe thả dốc tự do; giờ đây cô đi bộ thật chậm trong không gian mong manh như người bước đi trên dây, nhìn chằm chằm vào từng khe cửa để không ngã nhào xuống tuyệt vọng. Trên sợi dây mong manh ấy, cô bước ngang một bà cô đang quét cổng. Họ dừng lại nhìn nhau.<br>
+  &ensp;- Dì… Haerin đó phải không ạ?<br>
+  &ensp;- Seulgi?? Seulgi con nhà ông Kang đó hả?<br></p>
+  <p>&ensp;Wendy đạp ghế lùi xa máy tính, vươn vai khoan khoái nhìn đồng hồ. 6 giờ tối. Seulgi vẫn chưa về. Cậu ấy đi cả ngày sao? Nàng còn chưa kịp lưu số điện thoại nữa. Nàng nên đi nấu cơm.<br>
+  &ensp;Họ gặp lại nhau với thân phận chẳng mấy tốt đẹp. Wendy thấy thân phận làm sinh vật thí nghiệm của mình còn gớm hơn cả một người U30 đang sa cơ nhưng vẫn có toàn quyền làm chủ cuộc đời. So với Seulgi, nàng thua kém hơn hẳn. Lát nữa cậu ấy về, nàng nên nói chuyện gì? Cậu ấy có xem nàng là một thành viên của trung tâm nghiên cứu không? Đúng là nàng đang làm việc cho họ - vừa gập máy tính xuống đó, nhưng Seulgi, làm ơn, hãy tin rằng nàng không hề muốn đội trời chung với họ tẹo nào. Làm sao để cậu ấy tin? Nàng tự nhủ sẽ cố gắng đáp ứng tất cả những gì Seulgi muốn trong thời gian cậu ấy ở đây.<br>
+  &ensp;Seulgi bước vào nhà, thổi phì phì, thè lưỡi đẩy lọn tóc bị gió thổi dính vào miệng. Cậu ấy trông vẫn như một con gấu ngây ngô, mái tóc xoăn đen khoẻ khoắn. Nào ai biết Wendy đang phải kìm lòng rất nhiều, kì thực, lòng nàng vui sướng hân hoan như một con cún con khi được chào đón Seulgi quay về thế giới này. Giá như đôi mắt một mí ấy vẫn ấm áp như xưa. Nàng biết giữa họ đang có vách sâu vô hình, nàng không biết có lấp nổi không, nhưng nàng rất muốn thử, ngay bây giờ. Nàng sẽ cố gắng ngày đêm lấp đầy nó, miễn sao ở phía bờ bên kia, Seulgi không quay lưng bỏ đi.<br>
+  &ensp;Giá như họ là những người bạn bình thường, Seulgi đã hạnh phúc biết bao khi thấy có người đợi mình về. Nhưng giờ nhìn vào đôi mắt lấp lánh và vẻ nhấp nhổm khó hiểu, cô thà tin một âm mưu đang giấu giấu diếm diếm để ụp lên đầu cô. Seulgi cởi giày, lướt ngang qua Wendy với khuôn mặt lạnh ngắt. Mùi hương cậu ấy vụt qua, đôi mắt Wendy suýt ngấn lệ.<br>
+  &ensp;Bữa ăn lặng ngắt như thể một cây đao đang lơ lửng treo trên đầu sẽ rơi xuống người mở miệng lên tiếng trước. Wendy cố ra vẻ bình thản, đầu ngón tay run lên, nước mắt sắp sửa thành hình, đột nhiên Seulgi lên tiếng làm nàng giật mình:<br>
+  &ensp;- Tôi được nhận làm nhân viên ở tạp hoá Biển Vàng - cậu biết không nhỉ, tạp hoá của nhà dì Haerin?<br>
+  &ensp;- Tớ biết, ra khỏi cửa, rẽ phải, đi hết đoạn dốc rồi đi thêm hai ngã tư nữa phải không?<br>
+  &ensp;- Đúng rồi.<br>
+  &ensp;Không khí im lặng. Không, không thể kết thúc trò chuyện ở đây được. Wendy nhấp nhổm, biết Seulgi đang lén quan sát mình nàng càng bối rối hơn. Một lần nữa, nàng giật mình nhìn Seulgi đẩy một mẩu giấy về phía nàng:<br>
+  &ensp;<i>“Có ai đang theo dõi không?”</i><br>
+  &ensp;Wendy hít một hơi thật sâu, vừa viết vừa cân nhắc từng nét bút. Nàng mừng Seulgi đã hỏi. Câu trả lời nhìn có vẻ dài. Giữa chừng, tự dưng Wendy tủm tỉm cười khó hiểu, vẫn có ánh buồn phiền trong đó, nàng viết thêm một dòng bên lề rồi xé luôn nó đi, chỉ đưa Seulgi đọc phần đã viết trước đó.<br>
+  &ensp;Dù tò mò, Seulgi mặc kệ và đọc những gì được trao:<br>
+  &ensp;<i>“Họ theo dõi tớ qua tín hiệu sống bên trong tớ, nhưng chỉ vậy thôi. Trong khả năng đối phó của mình, tớ dám nói không có thiết bị theo dõi nào quanh đây.”</i><br>
+  &ensp;Seulgi viết:<br>
+  &ensp;<i>“Nếu không ai theo dõi, sao cậu không dám nói bằng lời mà phải viết xuống?”</i><br>
+  &ensp;Wendy bật cười “a ha!” và xoè ra mảnh giấy đã xé:<br>
+  &ensp;<i>“Tớ biết cậu sẽ hỏi câu hỏi đó! Nếu tớ nói luôn từ đầu ở đây cậu được an toàn, cậu có tin tớ không, hay cậu sẽ nghĩ tớ đang dụ dỗ cậu hở Seulgi?”</i><br>
+  &ensp;Nàng đung đưa người theo dõi nét mặt Seulgi. Thật đáo để – Seulgi cũng bật cười – sinh vật trước mặt cô cũng thật đáo để. Nó đoán được cô – đương nhiên rồi, vì nó mang trong mình tính cách của cô mà. Được, lần này Seulgi chọn tin tưởng nó không có ý đồ xấu.<br>
+  &ensp;Seulgi ngẩng lên khỏi mẩu giấy, bắt gặp từ phía bên kia bàn ăn nụ cười rạng rỡ khoái chí như trẻ thơ, song vẫn thu đầu vào vai nhìn cô đầy rụt rè. Tội nghiệp nó, Seulgi mỉm cười gật gù viết:<br>
+  &ensp;<i>“Tôi tin cậu.”</i><br>
+  &ensp;Tức thì, trái tim cô hẫng một nhịp. Cô không ngờ sinh vật này có thể cười như vậy. Thậm chí con người bằng xương bằng thịt ngoài kia từ lâu đã không còn cười kiểu đó, cho dù họ cười một mình, dù họ cười với ai, dù đó là chính cô.<br>
+  &ensp;Tối nay, trên hòn đảo đáng nguyền rủa, trong bữa cơm tưởng như câm lặng từ đầu tới cuối, Seulgi đã tìm lại được điều cô liều mạng đi tìm: nụ cười ngây thơ, trong sáng vô bờ năm cô mười hai tuổi.<br>
+  &ensp;Cô kể Wendy nghe tiệm tạp hoá trong đất liền bày bán nhiều mặt hàng hơn tiệm Biển Vàng. Pepero chẳng hạn, Wendy không nghĩ pepero có thể mua dễ dàng như vậy được phải không? Khoan đã, sinh vật này đã bao giờ ăn pepero chưa vậy? Ôi chao, nếu nó chỉ biết pepero vì Seulgi năm mười hai tuổi đã từng ăn thì hương vị đã nhạt nhoà quá rồi. Từ cửa hàng tạp hoá, Seulgi mở ra cả dãy phố, khu phố, rồi thành phố: nhà hàng, trung tâm thương mại, tàu cao tốc…<br>
+  &ensp;Wendy lén xé mảnh giấy ghi ba chữ “Tôi tin cậu.” kẹp vào cuốn album. Nàng không thể ngưng cười. Seulgi từ nhà tắm bước ra, tưởng đâu Wendy mắt vẫn sáng như sao hóng chuyện trên đất liền. Một đứa con nít thực thụ, Seulgi nghĩ. Xem ra cô không phiền chiều chuộng con nít. Seulgi kiên nhẫn kể chuyện cho đến khi sinh vật ấy ngủ mất. Cô nhẹ nhàng đi uống nước, trong đêm tối không hề thấy một quyển album ngay bên cạnh nơi cô vừa đặt cốc nước xuống.</p>
+</div>
